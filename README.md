@@ -1,4 +1,5 @@
 # 🎥 My Favorite K-Drama Series
+<img width="724" height="424" alt="image" src="https://github.com/user-attachments/assets/caa62ba7-cb4b-4054-83f5-cf31daf775a2" />
 
 ## 👑 Perfect Crown
 
